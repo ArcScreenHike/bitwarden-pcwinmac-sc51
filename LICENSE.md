@@ -1,4 +1,4 @@
-# 
+# Último Bitwarden extensiones para Mac OS | Premium Bitwarden extensiones para PC Windows. Con herencia de contraseñas y interruptor de apagado — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
